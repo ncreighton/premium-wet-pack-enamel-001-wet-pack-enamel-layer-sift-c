@@ -1,0 +1,2 @@
+# premium-wet-pack-enamel-001-wet-pack-enamel-layer-sift-c
+Drowning in wet-pack enamel samples and layer notes scattered across notebooks? The Wet Pack Enamel &amp; Layer Sift Craft Hub centralizes your entire enameling workflow—from material specs to color-layer sequencing—in one organized Notion dashboard.  This template eliminates the chaos of tracking enamel densities, wet-pack consistency ratios, and firi
